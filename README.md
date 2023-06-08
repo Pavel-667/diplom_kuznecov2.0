@@ -1,0 +1,1 @@
+# diplom_kuznecov2.0
